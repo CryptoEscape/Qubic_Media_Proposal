@@ -2,7 +2,7 @@
 
 **Submitted by:** The Great Crypto Escape  
 **Duration:** 3 Months  
-**Funding Requested:** 1.5 Billion Qubic per Month (Total: 4.5 Billion Qubic)
+**Funding Requested:** 1.5 Billion Qubic per Month (Total: 4.5 Billion Qubic) paid to this address: GYTCYNOZNWBHACYZYCZVVNRSLNRDBCNXPXDLQMVYDBPSDACHCYAVOCKAGACM
 
 ---
 
